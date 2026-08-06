@@ -2,4 +2,4 @@
 
 𝐋igh̳t* ✚˙ ｡
 
-<sub>Hi, I'm **Light**. M19, INTP.</sub>
+<sub>Hi, I'm **Light**. HeHim, **M19**, INTP.</sub>
