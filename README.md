@@ -8,4 +8,6 @@
 
 <sub>I'm almost always at docks, but also off-tab, so **whisper** me if you wanna say something.</sub>
 
-<sub>I love my girlfriend @teIevision & my best friend @minecraftmaxxing. Hi, you two. (^_^)
+<sub>I love my girlfriend [@teIevision](https://github.com/teIevision) & my best friend [@minecraftmaxxing](https://github.com/minecraftmaxxing). Hi, you two. (^_^)
+
+⠀ [Sign my Alterspring.](https://alterspring.org/deredere) [Check out my Kirari.](https://kirari.cafe/me) [Thanks for reading.](https://github.com/lordfudanshi)
