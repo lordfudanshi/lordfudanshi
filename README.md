@@ -10,4 +10,4 @@
 
 <sub>I love my girlfriend [@teIevision](https://github.com/teIevision) & my best friend [@minecraftmaxxing](https://github.com/minecraftmaxxing). Hi, you two. (^_^)
 
-⠀ [Sign my Alterspring.](https://alterspring.org/deredere) [Check out my Kirari.](https://kirari.cafe/me) [Thanks for reading.](https://github.com/lordfudanshi)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub>[Sign my Alterspring.](https://alterspring.org/deredere) [Check out my Kirari.](https://kirari.cafe/me) [Thanks for reading.](https://github.com/lordfudanshi)</sub>
